@@ -1,4 +1,4 @@
-# SurpriseWeekend Trip To Biltmore
+# Surprise Weekend Trip To Biltmore
 ## Grounds
 At the main grounds of the mansion, we visited the stables, gardens, and front fountain lawn. We did not tour inside the house because we prefer to see the house decorated for Christmas. Focusing our attention on the rest of the property meant we could enjoy time outdoors while the flowers were still blooming without stressing about meeting time slots for reservations. 
 
