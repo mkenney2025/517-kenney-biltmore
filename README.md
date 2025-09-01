@@ -22,7 +22,7 @@ In order, we chose to visit:
 
 Our favrotie place to look at the property was from the front lawn because it was so special getting to see everyone's photo sessions. Some couples were taking wedding photos, Some families were getting ahead on Christmas cards, and one couple even brought their dogs in little dresses to pose at the mansion. Overall, it was such a sweet moment and I'm glad we got to see it all together!
 
-![Madelyn and Quinn at the front of Biltmore House](https://file%2B.vscode-resource.vscode-cdn.net/Users/madelynkenney/Desktop/ENG%20517/517-repos/517-kenney-biltmore/Images/0C3B862D-4691-403B-9973-39CAB935C3FD_1_102_o.jpeg?version%3D1756756692666)
+![Madelyn and Quinn at the front of Biltmore House](Images/0C3B862D-4691-403B-9973-39CAB935C3FD_1_102_o.jpeg)
 For more information about Biltmore's Garden and greenhouse spaces, visit [this website!](https://www.biltmore.com/visit/biltmore-estate/gardens-grounds/)
 
 ## The Antler Hill Village 
@@ -37,4 +37,4 @@ We ordered:
 
 As we left, we watched the sun set on the mountains, and I remembered why we are always so drawn to Ashville. There's something so peaceful about watching the rolling hills explode into color, and just for a moment, the rest of the world stands still. This was the perfect end to a surprise trip, and I hope we get to go back soon! 
 
-![sunset over the mountains](https://file%2B.vscode-resource.vscode-cdn.net/Users/madelynkenney/Desktop/ENG%20517/517-repos/517-kenney-biltmore/Images/0B1C49DF-757D-442A-A214-05BC79605268_1_105_c.jpeg?version%3D1756756367944)
+![sunset over the mountains](Images/0B1C49DF-757D-442A-A214-05BC79605268_1_105_c.jpeg)
